@@ -1,5 +1,5 @@
 # 💫 About Me:
-Working towards security in a quantum world
+I'm a passionate explorer in the tech world, always up for learning and tackling new challenges. I've built startups that challenged the norm and brought ideas to life. Let's work together to find creative solutions to problems and boldly explore uncharted territory!
 
 
 ## 🌐 Socials:
